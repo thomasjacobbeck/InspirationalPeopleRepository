@@ -1,2 +1,0 @@
-"# InspirationalPeopleRepository" 
-"# InspirationalPeopleRepository" 
